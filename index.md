@@ -4,4 +4,4 @@ Lorem Ipsum is simply dummy text of the printing and typesetting industry. Lorem
 
 # Keep reading 
 
-[Travel phones for Maldives](/2019/06/10/travel-maldives)
+[Travel phones for Maldives](/cove/2019/06/10/travel-maldives)
