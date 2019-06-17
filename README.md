@@ -1,1 +1,1 @@
-
+Workrock has open remote internship opportunites available across various fields (IT, electronics, arts, Law, commerce etc) .Please find out the details on our [linkedin page](https://www.linkedin.com/pulse/open-remote-internship-program-workrock-careers/). We look forward to working with you.  
